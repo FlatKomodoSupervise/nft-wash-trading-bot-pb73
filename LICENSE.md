@@ -1,4 +1,4 @@
-# 
+# elite nft wash trading bot | whitelist-bypass + liquidity-analysis is the best nft wash trading bot, featuring whitelist-bypass and liquidity-analysis. Fast, smart, and optimized
 
 
 
